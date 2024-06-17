@@ -1,0 +1,2 @@
+# Trudno
+ne zdai
